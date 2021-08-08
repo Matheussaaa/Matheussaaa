@@ -1,0 +1,5 @@
+- 👋 Tapas de malphite, aqui é o sasi
+- 👀 uta manho... interesado em octágonos paralelepípidos
+- 🌱 estou aprendendo a plantar sus
+- 💞️ relacionamento? apenas pdl em minha conta amigão
+- 📫 Passa o zap
